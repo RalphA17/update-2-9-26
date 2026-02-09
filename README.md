@@ -7,5 +7,6 @@ My goals for this week is to pay a vist to the local library and see what resoru
 
 Wish me luck in my serach. If anything comes up I hope to provide an update to you all. 
 
-Sincerely, 
+Sincerely,
+
 Ralph Ayala
